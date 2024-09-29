@@ -38,9 +38,6 @@ Invitamos a todos los que comparten nuestra pasión por el software libre y los 
 
 **¡Construyamos algo increíble juntos!**
 
-👉 [Únete a nuestra comunidad](#)  
-👉 [Síguenos en redes sociales](#)
-
 ---
 
 ## 🌟 Let’s Connect!
